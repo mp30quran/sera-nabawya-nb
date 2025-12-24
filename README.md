@@ -33,6 +33,11 @@
 السيرة النبوية - نبيل العوضي
 
 
+https://archive.org/details/sera-nabawya/
+
+
+
+
 <img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/f4395eb3-3ca6-4f92-9ff9-45d933e3db39" />
 
 <img width="1080" height="2400" alt="image" src="https://github.com/user-attachments/assets/6d7f3cb0-cdc1-4687-a111-d448635db677" />
