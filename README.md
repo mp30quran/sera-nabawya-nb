@@ -39,6 +39,5 @@
 
 <img width="1080" height="2400" alt="Screenshot_20251224_030150" src="https://github.com/user-attachments/assets/c6efa38a-238e-41d1-953a-794bdfe9b6a7" />
 
-<img width="1080" height="2400" alt="Screenshot_20251223_103417" src="https://github.com/user-attachments/assets/95c279ba-87fb-40af-aa9e-c96483530f40" />
 
 
